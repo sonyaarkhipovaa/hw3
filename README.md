@@ -5,5 +5,7 @@
 Отмечу,что опрос сделан с юмором ;)
 ----------------------------------------------
 *[Сам опрос](https://docs.google.com/forms/d/18T6AUYsrCUepXcTBfu5T2ZWT4171e27ZjgofIQCpsNI/edit)*
+----------------------------------------
 [Таблица ответов](https://docs.google.com/spreadsheets/d/1KbpclD3j4UcrcJpJ2_f1SeTFYQL1OIJLzZtGcXi9a8A/edit#gid=1585251664)
+------------------------------------------
 *ко всему доступ открыт*
